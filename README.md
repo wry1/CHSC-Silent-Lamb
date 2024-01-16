@@ -1,1 +1,1 @@
-# CHSC SilentLamb Game Page
+# CHSC SilentLamb
